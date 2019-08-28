@@ -31,7 +31,7 @@ Khối sa lồi sau đi ngoài
 Cảm thấy ngứa và kích thích ở vùng hậu môn do búi trĩ sa lồi lở loét gây kích ứng niêm mạc.
 
 Biến chứng của bệnh trĩ
------
+=====
 
 Bệnh trĩ không gây quá rộng rãi biến chứng nghiêm trọng và phổ quát, nhưng giả dụ chủ quan thì vẫn có thể xảy ra
 
