@@ -27,6 +27,8 @@ Chảy máu khi đi vệ sinh
 Tùy theo hiện trạng bệnh mà trĩ sở hữu thể chưa gây đau, đau ít đến rất đau khi đi vệ sinh hay ngay cả thường ngày, khi có đau phổ thông cần phải Đánh giá kỹ để phát hiện các bệnh lý đi kèm: Nứt hậu môn, áp xe cạnh hậu môn, rò hậu môn. Đau đa dạng thường gặp trong trường hợp trĩ ngoại tắc mạch, nứt hậu môn
 không những thế còn sở hữu các biểu hiện:
 
+http://baovesuckhoe.mystrikingly.com/blog/3-cach-chua-va-dieu-tri-benh-tri/
+
 Khối sa lồi sau đi ngoài
 Cảm thấy ngứa và kích thích ở vùng hậu môn do búi trĩ sa lồi lở loét gây kích ứng niêm mạc.
 
