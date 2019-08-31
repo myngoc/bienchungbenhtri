@@ -56,4 +56,7 @@ Ngoài ra nếu không điều trị bệnh trĩ kịp thời sẽ gây ra nhi�
 
 để tránh những ảnh hưởng từ bệnh trĩ, bạn nên đến `địa chỉ phòng khám bệnh trĩ tại Hà Nội <https://doisongsuckhoe.webflow.io/posts/dia-chi-chua-benh-tri-hieu-qua-o-ha-noi-o-dau>`_ để được điều trị bệnh trĩ triệt để
 
+https://cach-chua-benh-tri-tai-nha-an-toan.readthedocs.io/en/latest/
+https://readthedocs.org/projects/cach-chua-benh-tri-tai-nha-an-toan/
+https://readthedocs.org/projects/dia-chia-kham-chua-va-dieu-tri-benh-tri/
 
